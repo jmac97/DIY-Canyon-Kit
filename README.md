@@ -1,4 +1,4 @@
-# DIY-Canyon-Kit
+# DIY Canyon Kit
 
 Like the flow of rivers that slowly carved away the Earth to create massive canyons, you too can create your own small scale canyon model by slowly dripping water onto the rock of your choosing! Put some water into the tube and let it go for your future ancestors to enjoy, if humans are still around then!
 
